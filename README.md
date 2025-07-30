@@ -7,6 +7,3 @@
 ---
 
 <img src="https://github.com/user-attachments/assets/128579cb-f568-4f4f-bbec-a30d752e0554"/>
-
----
-<img src="https://github.com/user-attachments/assets/98cc1e4b-8717-443b-8b0e-850133041dd4" width="50%"/>
