@@ -8,4 +8,5 @@
 
 <img src="https://github.com/user-attachments/assets/d6552a83-6dd3-42e2-a396-5004824389b3" width="65%"/>
 
-***testing colours+styles for my ponees plz whisp if it looks exactly like ur style!***
+***testing colours+styles for my ponees plz whisp if it looks exactly like ur style!
+(may reply late)***
