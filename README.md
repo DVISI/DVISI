@@ -3,7 +3,7 @@
 <img src="https://github.com/user-attachments/assets/d9f72ff9-2b03-46a9-b236-bf2fb6b3e14b" width="50%"/>
 ㅤ</p>
   
- **I adore my friends ♡ Y, M, G, J**
+ **I love my friends ♡ Y, M, G, J**
 ㅤ</p>
 ㅤ</p>
 ㅤ</p>
