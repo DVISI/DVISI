@@ -3,6 +3,7 @@
 ㅤ</p>
 <a href="https://divisions.atabook.org/">"atabook"</a>ㅤㅤㅤㅤㅤ<a href="https://mashles.straw.page/">"strawpage"</a></p>
 ㅤ</p>  
+  
  **I love my friends ♡ Y, M, G, J**
 ㅤ</p>
 ㅤ</p>
