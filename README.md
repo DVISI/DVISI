@@ -1,10 +1,11 @@
 <div align="center">
-<img src="https://github.com/user-attachments/assets/ebb57b1b-02f6-4071-b801-bb13065ee176" width="70%"/>
+  
+![Typing SVG](https://readme-typing-svg.demolab.com?font=Twinkle+Star&size=24&pause=700&color=000000&center=true&width=1200&lines="+peach+eyes+and+blue+skies,+";"+oh,+it's+on+the+moonlight.+";"+you'll+be+my+sunlight,+";"+how+could+I+not+rely,+";"+on+you...+";"+...peach+eyes?+")
+<img src="https://github.com/user-attachments/assets/83231c1a-3cb8-4cb8-9e8d-1eb422980244" width="50%"/>
 ㅤ</p>
 <a href="https://divisions.atabook.org/">atabook</a>ㅤㅤㅤㅤ<a href="https://mashles.straw.page/">strawpage</a></p>
 ㅤ</p>  
-  
- **I love my friends ♡ Y, M, G, J**
+I love my friends! Y, M, G, J
 ㅤ</p>
 ㅤ</p>
 ㅤ</p>
@@ -14,3 +15,4 @@
 ---
 ---
 ---
+♡
