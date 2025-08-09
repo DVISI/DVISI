@@ -1,6 +1,6 @@
 <div align="center">
   
-![Typing SVG](https://readme-typing-svg.demolab.com?font=Twinkle+Star&size=28&pause=700&color=000000&center=true&width=1200&lines="+peach+eyes+and+blue+skies,+";"+oh,+it's+on+the+moonlight.+";"+you'll+be+my+sunlight,+";"+how+could+I+not+rely,+";"+on+you...+";"+...peach+eyes?+♡+")
+![Typing SVG](https://readme-typing-svg.demolab.com?font=Twinkle+Star&size=28&pause=700&color=000000&center=true&width=1200&lines="+My+small+heart,+like+small+waves+inside,+";"+break+and+push+towards+you,+";"+melting+and+falling+away.+";"+And+only+then+can+I+see+my+eternity.+♡+")
 <img src="https://github.com/user-attachments/assets/742de705-6355-43e8-9bfc-e3ced42c5134" width="40%">
 ㅤ</p>
 <a href="https://divisions.atabook.org/">atabook</a>ㅤㅤㅤㅤ<a href="https://mashles.straw.page/">strawpage</a></p>
