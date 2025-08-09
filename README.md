@@ -4,9 +4,7 @@
 <img src="https://github.com/user-attachments/assets/83231c1a-3cb8-4cb8-9e8d-1eb422980244" width="40%"/>
 ㅤ</p>
 <a href="https://divisions.atabook.org/">atabook</a>ㅤㅤㅤㅤ<a href="https://mashles.straw.page/">strawpage</a></p>
-ㅤ</p>  
 I love my friendsyayy! Y, M, G, J
-ㅤ</p>
 ㅤ</p>
 ㅤ</p>
 
