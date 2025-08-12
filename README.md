@@ -6,7 +6,7 @@
   
 <img src="https://github.com/user-attachments/assets/0f4edaf6-3b38-4558-828a-200095a27bea" width="40%">
 ㅤ</p>
-<a href="https://divisions.atabook.org/">atabook</a>ㅤㅤㅤㅤ<a href="https://mashles.straw.page/">strawpage</a></p>
+<a href="https://mashle.atabook.org/">atabook</a>ㅤㅤㅤㅤ<a href="https://mashles.straw.page/">strawpage</a></p>
 I love my friendsyayy! Y, M, G, J
 
 ㅤ</p>
