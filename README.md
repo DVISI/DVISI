@@ -4,7 +4,7 @@
 ㅤ</p>
 <a href="https://mashle.atabook.org/">atabook</a>ㅤㅤㅤㅤ<a href="https://mashles.straw.page/">strawpage</a></p>
 ㅤ</p>
-<!-- hi ur cool ok? don't turn into a pigeon ok? hey stop looking at this its bad coding -->
+<!-- hey ur cool ok? be happy ok? dont turn into a pigeon..? stop looking at this bad coding boi -->
 ㅤ</p>
 ㅤ</p>
 ㅤ</p>
