@@ -1,10 +1,10 @@
 <div align="center">
 
-<img src="https://github.com/user-attachments/assets/76a75ef0-0a6d-409d-9dc7-f19e8c6de96c" width="25%">
-
+<img src="https://github.com/user-attachments/assets/a8989e4e-6994-495f-97ee-57b5648af1c4" width="40%">
+ㅤ</p>
 <a href="https://mashle.atabook.org/">atabook</a>ㅤㅤㅤㅤ<a href="https://mashles.straw.page/">strawpage</a></p>
 I love my friendsyayy! Y, M, G, J
-
+<!-- hi ur cool ok? don't turn into a pigeon ok? -->
 ㅤ</p>
 ㅤ</p>
 ㅤ</p>
