@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://github.com/user-attachments/assets/a8989e4e-6994-495f-97ee-57b5648af1c4" width="40%">
+<img src="https://github.com/user-attachments/assets/8227a39c-03ca-4a07-ba06-1db789bee801" width="70%">
 ㅤ</p>
 <a href="https://mashle.atabook.org/">atabook</a>ㅤㅤㅤㅤ<a href="https://mashles.straw.page/">strawpage</a></p>
 ㅤ</p>
