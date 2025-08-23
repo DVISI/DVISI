@@ -1,16 +1,13 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**DVISI/DVISI** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img src="https://github.com/user-attachments/assets/64cb8edf-a74b-4ab5-83e4-ba4428635559" width="70%">
+ㅤ</p>
+<a href="https://mashle.atabook.org/">atabook</a>ㅤㅤㅤㅤ<a href="https://mashles.straw.page/">strawpage</a>ㅤㅤㅤㅤ<a href="https://rentry.co/m4shle">rentry</a></p>
+ㅤ</p>
+ㅤ</p>
+ㅤ</p>
+ㅤ</p>
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+---
+---
+---
